@@ -20,7 +20,7 @@ By incorporating these self-care techniques into your daily routine, you can imp
 
 We hope that this book will inspire you to take action and invest in your physical and mental health through self-care practices. By prioritizing your own well-being, you can lead a happier, healthier, and more fulfilling life. Let's get started on this journey together!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
