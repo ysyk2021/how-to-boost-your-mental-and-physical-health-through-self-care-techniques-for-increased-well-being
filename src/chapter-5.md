@@ -1,5 +1,3 @@
-Chapter 5: Optimizing Nutrition and Exercise
-============================================
 
 In this chapter, we will explore the benefits of optimizing nutrition and exercise in promoting physical health. Good nutrition and exercise habits can help individuals improve their physical health, reduce the risk of chronic disease, and increase energy levels.
 

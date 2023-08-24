@@ -1,5 +1,3 @@
-Strategies for Finding and Engaging in Creative Activities
-====================================================================================================
 
 Engaging in creative activities is an excellent way to boost your mental and physical health. It can help you reduce stress, improve your mood, and increase your overall sense of well-being. In this chapter, we will explore strategies for finding and engaging in creative activities that work for you.
 

@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored various techniques for boosting our mental and physical health through self-care. By adopting a self-care routine, we can improve our overall well-being, reduce stress, and increase happiness.
 

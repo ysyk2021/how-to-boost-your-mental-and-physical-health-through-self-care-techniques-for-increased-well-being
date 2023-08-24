@@ -1,5 +1,3 @@
-Chapter 7: Exploring Creativity and Flow
-========================================
 
 In this chapter, we'll explore the importance of exploring creativity and flow for improved mental and physical health. We'll discuss techniques for exploring creativity and flow, strategies for finding and engaging in creative activities, and the benefits of exploring creativity and flow in reducing stress and enhancing well-being.
 

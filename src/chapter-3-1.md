@@ -1,5 +1,3 @@
-Techniques for Mindfulness and Relaxation
-===========================================================================================
 
 In this chapter, we will explore a variety of techniques for practicing mindfulness and relaxation. Mindfulness involves being fully present in the moment, while relaxation focuses on reducing stress and promoting calmness. Incorporating these techniques into daily life can lead to improved mental and physical health and increased well-being and happiness.
 

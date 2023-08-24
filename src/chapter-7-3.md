@@ -1,5 +1,3 @@
-The Benefits of Exploring Creativity and Flow in Reducing Stress and Enhancing Well-being
-===================================================================================================================================
 
 Creativity and flow are two powerful tools that can aid in reducing stress, increasing happiness, and boosting overall well-being. Engaging in creative activities or experiencing a state of flow can provide an escape from the pressures of daily life and lead to a sense of fulfillment and satisfaction.
 

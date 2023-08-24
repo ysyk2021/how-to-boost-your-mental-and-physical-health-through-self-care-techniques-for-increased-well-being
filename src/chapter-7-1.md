@@ -1,5 +1,3 @@
-Techniques for Exploring Creativity and Flow
-======================================================================================
 
 Engaging in creative activities or experiencing flow can provide numerous benefits for our mental and physical health. However, it can be challenging to know where to start or how to create a routine that incorporates creativity and flow. In this chapter, we'll explore some techniques for exploring creativity and flow to enhance your overall well-being.
 

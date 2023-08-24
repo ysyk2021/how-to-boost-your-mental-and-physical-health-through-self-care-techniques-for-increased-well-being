@@ -1,5 +1,3 @@
-The Benefits of Gratitude and Positive Thinking in Enhancing Mental Health and Happiness
-================================================================================================================================================
 
 Research has shown that cultivating gratitude and positive thinking can have a significant impact on our mental health and well-being. In this chapter, we will explore the benefits of gratitude and positive thinking and how we can incorporate these practices into our daily lives to enhance our overall sense of happiness and well-being.
 

@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced world, it is easy to forget the importance of self-care for our overall health and well-being. We often get so caught up in our daily routines and responsibilities that we neglect to take care of ourselves, both physically and mentally. However, taking care of ourselves is essential for our long-term health and happiness.
 

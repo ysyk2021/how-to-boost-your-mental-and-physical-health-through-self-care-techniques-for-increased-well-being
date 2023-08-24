@@ -1,5 +1,3 @@
-Chapter 3: Practicing Mindfulness and Relaxation
-================================================
 
 In this chapter, we will explore the benefits of mindfulness and relaxation techniques for reducing stress and promoting overall health and well-being. We will also discuss different techniques for practicing mindfulness and relaxation and strategies for incorporating them into daily life.
 

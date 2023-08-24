@@ -1,5 +1,3 @@
-Strategies for Incorporating Healthy Habits into Daily Life
-=========================================================================================================
 
 Optimizing nutrition and exercise habits is essential for promoting physical health and well-being. However, incorporating healthy habits into daily life can be challenging. In this chapter, we'll explore strategies for incorporating healthy habits into your daily routine to help you achieve optimal physical health and well-being.
 

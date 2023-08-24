@@ -1,5 +1,3 @@
-Techniques for Developing a Self-Care Routine
-========================================================================================
 
 Self-care is essential for maintaining good mental and physical health. Developing a self-care routine can help you manage stress, improve your mood, and increase your overall well-being. In this chapter, we will explore techniques for developing a self-care routine that works for you.
 

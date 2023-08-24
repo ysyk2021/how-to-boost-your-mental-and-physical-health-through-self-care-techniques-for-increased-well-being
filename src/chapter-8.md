@@ -1,5 +1,3 @@
-Chapter 8: Cultivating Gratitude and Positive Thinking
-======================================================
 
 In this chapter, we will explore the benefits of cultivating gratitude and positive thinking in enhancing mental health and happiness. Gratitude and positive thinking can help individuals develop a more positive outlook on life and increase feelings of well-being.
 

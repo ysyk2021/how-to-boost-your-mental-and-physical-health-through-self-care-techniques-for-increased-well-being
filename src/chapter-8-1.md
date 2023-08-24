@@ -1,5 +1,3 @@
-Techniques for Cultivating Gratitude and Positive Thinking
-==================================================================================================================
 
 In this chapter, we will explore the techniques for cultivating gratitude and positive thinking. Gratitude and positive thinking are powerful tools for increasing mental and physical health, as well as overall well-being and happiness.
 

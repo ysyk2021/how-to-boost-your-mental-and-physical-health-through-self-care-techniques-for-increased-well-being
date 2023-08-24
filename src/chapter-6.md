@@ -1,5 +1,3 @@
-Chapter 6: Nurturing Relationships and Building Support Systems
-===============================================================
 
 In this chapter, we will explore the importance of nurturing relationships and building support systems for promoting mental and emotional health. We will provide techniques for nurturing relationships and building support systems, as well as strategies for connecting with others and building stronger relationships.
 

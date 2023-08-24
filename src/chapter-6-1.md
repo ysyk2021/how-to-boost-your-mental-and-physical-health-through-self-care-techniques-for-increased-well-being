@@ -1,5 +1,3 @@
-Techniques for Nurturing Relationships and Building Support Systems
-====================================================================================================================================
 
 In this chapter, we will explore techniques for nurturing relationships and building support systems. By utilizing these techniques, we can foster strong relationships with loved ones and build a network of supportive individuals who contribute to our mental and emotional well-being.
 

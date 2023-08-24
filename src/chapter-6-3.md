@@ -1,5 +1,3 @@
-The Benefits of Nurturing Relationships and Building Support Systems in Promoting Mental and Emotional Health
-==============================================================================================================================================================================
 
 In this chapter, we will explore the benefits of nurturing relationships and building support systems for promoting mental and emotional health. By fostering strong connections with loved ones, we can build a network of supportive individuals who contribute to our well-being and happiness.
 

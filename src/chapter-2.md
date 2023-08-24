@@ -1,5 +1,3 @@
-Chapter 2: Developing a Self-Care Routine
-=========================================
 
 Developing a self-care routine is essential for promoting mental and physical health, increasing well-being, and achieving happiness. By prioritizing self-care, we can reduce stress and improve our overall quality of life. In this chapter, we'll explore techniques for developing a self-care routine, strategies for incorporating self-care into daily life, and the benefits of consistent self-care.
 

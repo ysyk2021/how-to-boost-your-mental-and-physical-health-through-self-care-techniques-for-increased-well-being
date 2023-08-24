@@ -1,5 +1,3 @@
-Strategies for Connecting with Others and Building Stronger Relationships
-==========================================================================================================================================
 
 In this chapter, we will discuss strategies for connecting with others and building stronger relationships. By fostering meaningful connections with the people in our lives, we can build a strong support system that promotes mental and emotional health.
 

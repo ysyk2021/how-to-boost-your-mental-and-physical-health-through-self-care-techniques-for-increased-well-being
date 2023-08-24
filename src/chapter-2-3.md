@@ -1,5 +1,3 @@
-The Benefits of Consistent Self-Care in Promoting Well-being and Happiness
-=====================================================================================================================
 
 In Chapter 1, we explored the benefits of self-care and techniques for developing a self-care routine. In this chapter, we will delve deeper into the importance of consistent self-care in promoting well-being and happiness.
 

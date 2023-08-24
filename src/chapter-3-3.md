@@ -1,5 +1,3 @@
-The Benefits of Mindfulness and Relaxation Techniques in Reducing Stress and Anxiety
-======================================================================================================================================
 
 In this chapter, we will explore the benefits of mindfulness and relaxation techniques in reducing stress and anxiety. Stress and anxiety can have negative effects on mental and physical health, but practicing mindfulness and relaxation can help individuals manage these symptoms effectively.
 

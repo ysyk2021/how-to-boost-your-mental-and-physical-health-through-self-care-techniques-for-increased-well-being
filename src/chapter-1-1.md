@@ -1,5 +1,3 @@
-Explaining the Importance of Self-Care for Mental and Physical Health
-==============================================================================================
 
 Self-care is the practice of taking deliberate actions to support our physical, mental, and emotional well-being. Many people view self-care as an optional indulgence, but in reality, it is essential for maintaining overall health and happiness.
 
