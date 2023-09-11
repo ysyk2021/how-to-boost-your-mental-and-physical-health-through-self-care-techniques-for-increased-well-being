@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Developing a Self-Care Routine
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing a self-care routine is essential for boosting your mental and physical health, increasing well-being, and finding happiness in life. In this chapter, we will explore various techniques to help you establish an effective self-care routine that suits your needs and lifestyle.
 

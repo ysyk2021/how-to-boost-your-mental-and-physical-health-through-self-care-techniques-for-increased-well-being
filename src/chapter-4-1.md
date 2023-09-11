@@ -1,5 +1,4 @@
-Chapter: Techniques for Managing Emotions and Building Resilience
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for managing emotions and building resilience. Emotions play a significant role in our mental and physical well-being, and learning to effectively manage them can enhance our overall happiness and increase our ability to navigate life's challenges. This chapter presents key strategies and practices that can help individuals develop emotional intelligence, regulate their emotions, and build resilience.
 

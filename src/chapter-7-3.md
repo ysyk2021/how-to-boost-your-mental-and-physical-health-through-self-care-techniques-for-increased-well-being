@@ -1,5 +1,4 @@
-Chapter: The Benefits of Exploring Creativity and Flow in Reducing Stress and Enhancing Well-being
-==================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of exploring creativity and achieving a state of flow in reducing stress and enhancing overall well-being. Engaging in creative activities and experiencing a state of flow can have a profound impact on our mental and physical health, leading to increased happiness and a greater sense of fulfillment. This chapter highlights the positive effects of creativity and flow on reducing stress and promoting well-being.
 

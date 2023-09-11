@@ -1,5 +1,4 @@
-Chapter: Techniques for Mindfulness and Relaxation
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for mindfulness and relaxation that can effectively boost your mental and physical health. These techniques are valuable tools for reducing stress, increasing self-awareness, and promoting overall well-being. By incorporating these practices into your daily life, you can enhance your ability to relax, find inner calmness, and cultivate a greater sense of happiness. This chapter presents a collection of techniques for mindfulness and relaxation that you can easily integrate into your self-care routine.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Incorporating Mindfulness into Daily Life
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for incorporating mindfulness into your daily life to boost your mental and physical health. Mindfulness is the practice of focusing attention on the present moment with non-judgmental awareness. By integrating mindfulness into your routine, you can cultivate a greater sense of calm, presence, and well-being. This chapter provides practical techniques and tips for incorporating mindfulness into various aspects of your daily life.
 

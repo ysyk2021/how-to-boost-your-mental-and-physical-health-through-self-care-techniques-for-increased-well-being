@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Incorporating Self-Care into Daily Life
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating self-care into our daily lives is crucial for promoting mental and physical health, as well as increasing overall well-being and happiness. When we prioritize self-care, we nourish ourselves emotionally, mentally, and physically. However, it can be challenging to make self-care a consistent part of our routines amidst busy schedules and competing priorities. In this chapter, we will explore strategies for effectively incorporating self-care into our daily lives:
 

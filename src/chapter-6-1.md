@@ -1,5 +1,4 @@
-Chapter: Techniques for Nurturing Relationships and Building Support Systems
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for nurturing relationships and building support systems. Strong connections with others and a robust support network are essential for our mental and physical well-being, contributing to increased happiness, resilience, and overall life satisfaction. This chapter presents key strategies and practices that can help individuals cultivate and maintain nurturing relationships and build effective support systems.
 

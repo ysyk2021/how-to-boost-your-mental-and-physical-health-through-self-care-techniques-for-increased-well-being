@@ -1,5 +1,4 @@
-Chapter: Strategies for Incorporating Healthy Habits into Daily Life
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for incorporating healthy habits into our daily lives. Building and maintaining healthy habits is essential for promoting mental and physical well-being, increasing overall happiness, and achieving a higher quality of life. This chapter presents key techniques and practices that can help individuals establish and sustain healthy habits for long-term well-being and happiness.
 

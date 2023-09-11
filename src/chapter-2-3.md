@@ -1,5 +1,4 @@
-Chapter 4: The Benefits of Consistent Self-Care in Promoting Well-Being and Happiness
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Consistent self-care is essential for promoting well-being and happiness. In today's busy and stressful world, it's easy to neglect our own needs. However, this can lead to a range of physical and mental health problems that can negatively impact our quality of life. By prioritizing self-care, we can boost our overall well-being and increase our happiness levels. Here are some of the key benefits of consistent self-care:
 

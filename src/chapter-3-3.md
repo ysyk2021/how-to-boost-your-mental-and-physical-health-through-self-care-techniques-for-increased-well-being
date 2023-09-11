@@ -1,5 +1,4 @@
-Chapter: The Benefits of Mindfulness and Relaxation Techniques in Reducing Stress and Anxiety
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of mindfulness and relaxation techniques in reducing stress and anxiety. Incorporating these practices into your self-care routine can have a profound impact on your mental and physical health, promoting overall well-being and enhancing happiness. This chapter highlights the positive effects of mindfulness and relaxation on stress reduction and anxiety management.
 

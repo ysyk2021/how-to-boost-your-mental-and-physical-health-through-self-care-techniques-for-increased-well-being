@@ -1,5 +1,4 @@
-Chapter: Techniques for Exploring Creativity and Flow
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for exploring creativity and achieving a state of flow. Engaging in creative activities can have profound effects on our mental and physical health, promoting increased well-being and happiness. This chapter presents various strategies and practices that can help individuals tap into their creativity, experience a state of flow, and enhance their overall sense of fulfillment.
 

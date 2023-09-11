@@ -1,5 +1,4 @@
-Chapter: Techniques for Optimizing Nutrition and Exercise
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for optimizing nutrition and exercise to boost your mental and physical health. Proper nutrition and regular exercise play vital roles in promoting overall well-being, increasing energy levels, and enhancing happiness. This chapter presents key strategies and practices that can help you optimize your nutrition and exercise routines for optimal health and increased well-being.
 
